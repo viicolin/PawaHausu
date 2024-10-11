@@ -7,3 +7,4 @@ Link a la memoria del projecte:
 https://docs.google.com/document/d/1ztdHsQC8qlLH8FRXjPH-mJI0jDaqoliugpP1SV28r0E/edit?usp=sharing
 
 Enllaç al meu LinkedIn:
+https://www.linkedin.com/in/h%C3%A9ctor-vico-a50a38252/
